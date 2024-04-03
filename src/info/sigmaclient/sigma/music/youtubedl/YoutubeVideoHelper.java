@@ -22,7 +22,7 @@ import java.util.*;
 
 
 public class YoutubeVideoHelper {
-    static String apikey = "AIzaSyDRdF7fEq0COKFwetb4PXn3oGT6m65MWnM";
+    static String apikey = "NoneLOL-Needit By Yourself";
     static HttpTransport httpTransport = new NetHttpTransport();
     static JsonFactory jsonFactory = new JacksonFactory();
     static YouTube youtube = new YouTube.Builder(httpTransport, jsonFactory, request -> {}).setApplicationName("youtube").build();
