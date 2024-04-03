@@ -1,4 +1,4 @@
-# SigmaNextGen-Client-OpenSources
+# SigmaNextGen-Client-OpenSources 🔥🔥🔥
 AntiShitMeteordev Someone named Meteor Dead Mom Dead Dad seems to want to go against the team and sell the code, so I've decided to make this code public, and a certain dead momma's boy is probably going to be disappointed.XD
 AntiShit Meteordev 有个叫流星死妈死爸的人似乎想和团队作对，把代码卖掉，所以我决定公开这个代码，某位死妈的儿子可能要失望了。
 
@@ -11,5 +11,17 @@ Attempting to sell the code but it's all shit code XD， I don't recommend you b
 BTW, the 1.20.4 Fabric version doesn't actually have any features written on it, so buying it is like getting scammed XD
 ![ba55ea324cd4a12045bd2227cf07aa07](https://github.com/FallenAngeler1337/SigmaNextGen-Client-OpenSources/assets/106905084/5f142ce6-43bc-49bb-b619-1719b1054acd)
 
-Discord got nuked Moment 👍👍👍Kid's trick XD
+# Discord got nuked Moment 👍👍👍Kid's trick XD
 ![b2e17a5964ce5a21e292af15ef82a71c](https://github.com/FallenAngeler1337/SigmaNextGen-Client-OpenSources/assets/106905084/7ce84bdc-bce3-4e6b-a148-29512633a55e)
+![b683cb3367067e0dca1000f267a1f68b](https://github.com/FallenAngeler1337/SigmaNextGen-Client-OpenSources/assets/106905084/ed9411f7-9861-4ea9-a124-13d48f1109fc)
+![skull](https://github.com/FallenAngeler1337/SigmaNextGen-Client-OpenSources/assets/106905084/4f80e9ba-b0a6-4623-8c20-e39303c38e69)
+![ce4d3504d4169def2af01373a3e49f75](https://github.com/FallenAngeler1337/SigmaNextGen-Client-OpenSources/assets/106905084/2d5ac485-c72a-4e95-ac09-20deb2b11d08)
+
+# Tried text bombing to gross me out, It didn't work for me
+![9dfeefa2d063cb1b10dbd85cfc6a4a55](https://github.com/FallenAngeler1337/SigmaNextGen-Client-OpenSources/assets/106905084/ed52d522-4840-4903-95ba-8fd1ecd7de7c)
+
+# I think it's the one whose family has changed that looks the most like DIGGER, or not like, but exactly like. :)
+![248717ec2ea49b4f4a37ec29ab372d82](https://github.com/FallenAngeler1337/SigmaNextGen-Client-OpenSources/assets/106905084/d39705d9-a30b-4d49-b540-9c70eec051f8)
+
+Overly animalistic tactics, I can kind of see how underhanded fools attempt to disgust everyone with their looks.XD
+
